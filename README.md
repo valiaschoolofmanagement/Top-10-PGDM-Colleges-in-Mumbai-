@@ -1,2 +1,3 @@
 # Top-10-PGDM-Colleges-in-Mumbai-
  Join Top 10 PGDM college in Mumbai to experience one of the top PGDM programs and launch your journey to success.
+Valia School of Management is the Top 10 PGDM Colleges in Mumbai, offers a 2-year, full-time Post Graduate Diploma in Management (PGDM). With this AICTE-approved program, you will acquire hands-on experience toward industry excellence. With specializations in Marketing, Finance, Human Resources, Artificial Intelligence, and Data Science, our curriculum emphasizes practical learning through rigorous case studies and valuable guest sessions led by industry experts.
